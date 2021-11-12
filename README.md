@@ -52,3 +52,6 @@
 > [![Handler Made by Tomato ]](https://github.com/Tomato6966/) Discord server discord.gg/Milrato
 
 > [![Made By Mr_deadpool#7518 ]](https://discord.gg/SbYUMuVV5F) 
+
+
+> ⚠️⚡THIS BOT IS NOT DONE YET ⚠️⚡
